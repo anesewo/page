@@ -1,0 +1,1 @@
+このページは、[SCP財団](http://scp-jp.wikidot.com/)を元作品とした、[CCBYSA3.0ライセンス](https://creativecommons.org/licenses/by-sa/3.0/deed.ja)で公開されています。
